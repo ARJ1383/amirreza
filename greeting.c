@@ -1,1 +1,1 @@
-mohatavay avalie
+mohatavay sanavie
